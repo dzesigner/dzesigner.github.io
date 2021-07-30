@@ -1,1 +1,0 @@
-Dzesigner is comming soon..
